@@ -1,4 +1,4 @@
-👋 Hi, I'm @Dhirajx15 ==> DHIRAJ KUMAR <img src="https://media.giphy.com/media/W36WBRMicIbBKiX4K4/giphy.gif" width="30">
+👋 Hi, I'm @Dhirajx15 ==> DHIRAJ KUMAR <img src="https://media.giphy.com/media/z8wicKX1oBB9sqka2D/giphy.gif" width="30">
 
 👀 I'm interested in Geography, Agriculture, and GIS.
 
