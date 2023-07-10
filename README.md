@@ -1,4 +1,4 @@
-👋 Hi, I'm @Dhirajx15 ==> DHIRAJ KUMAR <div style="width:100%;height:0;padding-bottom:100%;position:relative;"><iframe src="https://giphy.com/embed/vQLknU3u05U3nOcvXl" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/kloecknermetals-vQLknU3u05U3nOcvXl">via GIPHY</a></p>
+👋 Hi, I'm @Dhirajx15 ==> DHIRAJ KUMAR <img src="https://media.giphy.com/media/W36WBRMicIbBKiX4K4/giphy.gif" width="50">
 
 👀 I'm interested in Geography, Agriculture, and GIS.
 
